@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MatiasAchkar
-- 👀 I’m interested in learning more abot this platform
+- 👀 I’m interested in learning more about this platform
 - 🌱 I’m currently working as a Director of production fot tadc.com.ar
 - 💞️ I’m looking to collaborate on creative projects
 - 📫 How to reach me matiasjachkar@gmail.com
